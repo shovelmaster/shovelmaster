@@ -12,7 +12,7 @@ Fork or clone this repo, add your name to the list below, and submit a pull requ
 
 #Path Seekers:
 
-1.
+1. Emma Ritcey
 
 2.
 
