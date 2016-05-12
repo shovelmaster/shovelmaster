@@ -13,12 +13,11 @@ Fork or clone this repo, add your name to the list below, and submit a pull requ
 #Path Seekers:
 
 1.
+
 2.
+
 3.
+
 4.
+
 5.
-6.
-7.
-8.
-9.
-10.
