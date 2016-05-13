@@ -16,7 +16,7 @@ Fork or clone this repo, add your name to the list below, and submit a pull requ
 
 2. Torey Hickman
 
-3.
+3. Zach Barton - Shovel Master Emeritus
 
 4.
 
